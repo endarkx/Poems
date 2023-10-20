@@ -3,10 +3,11 @@
 
 ___
 
-A mere devotion, started out as a rather humble promise
+A mere devotion,   
+started out as a rather humble promise
 has ripened.
 couple heart woven,
-a bond shallow than blood,
+a bond intent than blood,
 adherents of the heart,
 their amity, a never lost love.
 an odyssey of compassion,

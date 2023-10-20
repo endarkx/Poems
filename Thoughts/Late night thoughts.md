@@ -4,7 +4,7 @@
 ___
 
 Where do I stop they ask me.
-No where. There is no limit.
+No. There is no limit.
 There is no limit to my words, no limit to my imagination.
 A wild mind wandering through the unknown, meddling with those creations
 A mind with limitless possibilities.
