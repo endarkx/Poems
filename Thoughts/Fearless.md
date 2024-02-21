@@ -1,7 +1,6 @@
+\#thoughts
 
-#thoughts 
-
-___
+***
 
 When you're forever gone: never to return,
 I promise not to shed a tear.

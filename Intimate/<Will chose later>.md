@@ -1,7 +1,6 @@
+\#intimacy
 
-#intimacy 
-
-___
+***
 
 Eros for devotion grows,
 lake a surge of ardor in bestows.
