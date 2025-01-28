@@ -1,6 +1,3 @@
----
-sticker: emoji//1f4ad
----
 
 #fun 
 
@@ -8,7 +5,7 @@ ___
 
 Wounded by your love, I'm afraid to fall again.
 
-Feeble soul afeared,
+Feeble soul feared,
 hurt from the lost love,
 craving to love once more.
 

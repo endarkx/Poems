@@ -13,7 +13,7 @@ their amity, a never lost love.
 an odyssey of compassion,
 with each stage, guiding me towards tomorrow
 an eternal voyage,
-to cease like those of phoenixs' ashen.
+to cease like those of phoenix' ashen.
 
 
 

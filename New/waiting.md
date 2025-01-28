@@ -12,4 +12,4 @@ and the hurt it gives is unspoken.
 i was waiting,  
 waiting to be found,  
 from what I saw in that world,  
-were only my fears kepts inbound.
+were only my fears kept inbound.
